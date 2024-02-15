@@ -1,4 +1,4 @@
-- 👋 Hi, I’m corn
+- 👋 Hi, I’m emo
 - 👀 I’m interested in lana del rey
 - 🌱 I’m currently learning english and czech a little
 - 💞️ I’m looking to collaborate on lana del rey
