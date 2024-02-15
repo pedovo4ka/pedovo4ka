@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pedovo4ka
+- 👋 Hi, I’m corn
 - 👀 I’m interested in lana del rey
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on lana del rey
